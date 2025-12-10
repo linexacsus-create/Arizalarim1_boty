@@ -1,1 +1,0 @@
-# Arizalarim1_boty
